@@ -1,0 +1,1 @@
+przeczyta³em
